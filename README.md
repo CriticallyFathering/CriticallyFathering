@@ -1,6 +1,12 @@
 ## GET TO KNOW PARODY/MAISSOUN!1!1!
 ![image](https://github.com/user-attachments/assets/4764a75a-308a-4717-a0a0-0a66d2d73526)
 
+-Call me Parody unless very close, can use Maissoun
+
+-he/him (disc/pt/realitydni)
+
+-she/her(im female but refrain unless I allow)
+
 -Marrified father of 534!!! ! ![image](https://github.com/user-attachments/assets/12d827e4-64fe-47c0-a15f-9307e7810fac)
 
 -Flexes wife !!!
@@ -13,6 +19,8 @@ Hallo siblings!!§!§!§ Malaria(Amber my prek) and Asperger(Tony) !!
 
 
 About me!$!$ 
+
+-Doctor in philosophy, med, literature, everything/jk
 
 -Int w care!1!1! 
 
@@ -60,6 +68,8 @@ uninvited vent
 
 
 ![image](https://github.com/user-attachments/assets/23d65d5d-820a-48ae-9c82-26903b03ff07)
+
+(The reason for the prns are bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
 
  found on tumblr, everyone be nice to them!1!!11
 
