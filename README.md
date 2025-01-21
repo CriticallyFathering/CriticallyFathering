@@ -28,6 +28,8 @@ About me!$!$
 
 -All bark no bite
 
+-Never judges
+
 -INTP (even if these tests suck)
 
 -German, English, Arabic only with numbers and Latin letters!!
@@ -38,11 +40,14 @@ About me!$!$
 
 -under 12 and over 18 iwec (age is pritave!), can be skittish
 
-c+h only close friends/family/wif
+-c+h only close friends/family/wif
 
-NSFW dni, NSFL alr
+-NSFW dni, NSFL alr
 
-int anyone general
+-int anyone general
+
+-I love ocs!!
+
 
 
 dni:
@@ -69,7 +74,10 @@ uninvited vent
 
 ![image](https://github.com/user-attachments/assets/23d65d5d-820a-48ae-9c82-26903b03ff07)
 
-(The reason for the prns are bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
+(The reason for the prns being so chaotic is bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
+
+
+
 
  found on tumblr, everyone be nice to them!1!!11
 
