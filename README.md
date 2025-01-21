@@ -1,7 +1,7 @@
 ## GET TO KNOW PARODY/MAISSOUN!1!1!
 ![image](https://github.com/user-attachments/assets/4764a75a-308a-4717-a0a0-0a66d2d73526)
 
--Call me Parody unless very close, can use Maissoun
+-Call me Parody unless very close, then you can use Maissoun
 
 -he/him (disc/pt/realitydni)
 
