@@ -11,7 +11,14 @@
 
 Hallo siblings!!§!§!§ Malaria(Amber my prek) and Asperger(Tony) !!
 
+
 About me!$!$ 
+
+-Int w care!1!1! 
+
+-Sensitive(no snowflake, just sensitive w feelings if criticism or anything is directed towards me)
+
+-All bark no bite
 
 -INTP (even if these tests suck)
 
@@ -53,6 +60,8 @@ uninvited vent
 
 
 ![image](https://github.com/user-attachments/assets/23d65d5d-820a-48ae-9c82-26903b03ff07)
+
+ found on tumblr, everyone be nice to them!1!!11
 
 
 
