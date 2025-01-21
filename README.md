@@ -7,8 +7,6 @@
 
 -she/her(im female but refrain unless I allow)
 
-
-
 My preks:
 
 -pMarrified father of 534!!! ! ![image](https://github.com/user-attachments/assets/12d827e4-64fe-47c0-a15f-9307e7810fac)
