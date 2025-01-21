@@ -23,6 +23,8 @@ My preks:
 Hallo siblings!!§!§!§ Malaria(Amber my prek) and Asperger(Tony) !!
 
 
+![image](https://github.com/user-attachments/assets/dbdbaa15-1a4a-402e-8cfa-f028f49544ec)
+
 
 About me!$!$ 
 
@@ -85,16 +87,13 @@ uninvited vent
 (The reason for the prns being so chaotic is bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
 
 
-
+still a wip, I am not an aven fan
 
  found on tumblr, everyone be nice to them!1!!11
 
-
-
-
-I only found aven guys, still a wip (not an aven fan, happily steals gallagher graphics)
-
-
-
-
+yellow tint graphics
 graphic deco cr to https://www.tumblr.com/llocket !!!
+chibis by ...
+divider by https://www.tumblr.com/sunearis
+
+
