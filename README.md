@@ -14,7 +14,9 @@ My preks:
 
 -pMarrified father of 534!!! ! ![image](https://github.com/user-attachments/assets/12d827e4-64fe-47c0-a15f-9307e7810fac)
 
--Flexes wife !!!
+-Flexes wife !!!![image](https://github.com/user-attachments/assets/54a23b40-a263-4410-95a1-359ff6229568) ![image](https://github.com/user-attachments/assets/515d4932-ee4f-4074-b941-65c9cc7e9fcd)
+
+
 
 -Meatloaf my right hand!$!!$!$
 
