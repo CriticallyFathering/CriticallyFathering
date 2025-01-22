@@ -58,6 +58,13 @@ About me!$!$
 -I love ocs!!
 
 
+Fav characters
+
+-Gallagher
+
+-Mr Reca
+
+
 
 
 
