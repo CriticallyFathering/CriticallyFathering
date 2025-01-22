@@ -47,7 +47,8 @@ About me!$!$
 
 -Loves writing but very shy abt actually showing my work
 
--under 12 and over 18 iwec (age is pritave!), can be skittish
+-under 12 and over 18 iwec (age is pritave!), can be skittish ![image](https://github.com/user-attachments/assets/9d377c9f-afdf-4f20-a546-a9a57b2871c3)
+
 
 -c+h only close friends/family/wif
 
