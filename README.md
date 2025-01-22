@@ -83,7 +83,8 @@ uninvited vent
 
 
 
-![image](https://github.com/user-attachments/assets/23d65d5d-820a-48ae-9c82-26903b03ff07)
+![image](https://github.com/user-attachments/assets/6293e8a4-cc67-4c2c-8bc2-c0cf1ddea879)
+
 
 (The reason for the prns being so chaotic is bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
 
