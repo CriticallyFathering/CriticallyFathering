@@ -94,7 +94,7 @@ uninvited vent
 ![image](https://github.com/user-attachments/assets/6293e8a4-cc67-4c2c-8bc2-c0cf1ddea879)
 
 
-(The reason for the prns being so chaotic is bcs I escape reality a lot and wish to forget who I really am, please respect this and dont question unless close.)
+The reason for the prns being so chaotic is bcs I escape reality a lot and wish to forget who I really am(€L1n/<) please respect this and dont question unless close. It hurts me to get reminded.
 
 
 still a wip, I am not an aven fan
@@ -108,4 +108,4 @@ divider by https://www.tumblr.com/sunearis
 
 frthrmsg: yuarntavengtut
 
-1nf*: *ccl1nk
+
