@@ -31,6 +31,8 @@ About me!$!$
 
 -Doctor in philosophy, med, literature, everything/jk
 
+-C-link
+
 -Int w care!1!1! 
 
 -Sensitive(no snowflake, just sensitive w feelings if criticism or anything is directed towards me)
