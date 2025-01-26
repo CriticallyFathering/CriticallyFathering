@@ -31,7 +31,6 @@ About me!$!$
 
 -Doctor in philosophy, med, literature, everything/jk
 
--C-link
 
 -Int w care!1!1! 
 
