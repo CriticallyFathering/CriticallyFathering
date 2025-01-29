@@ -27,10 +27,20 @@ Hallo siblings!!§!§!§ Malaria(Amber my prek) and Asperger(Tony) !!
 ![image](https://github.com/user-attachments/assets/dbdbaa15-1a4a-402e-8cfa-f028f49544ec)
 
 
+Interests!1!1!1!
+
+-philosophy
+
+-politics
+
+-psychology
+
+~Teach me chemistry and biology, im failing 💔
+
+
 About me!$!$ 
 
 -Doctor in philosophy, med, literature, everything/jk
-
 
 -Int w care!1!1! 
 
