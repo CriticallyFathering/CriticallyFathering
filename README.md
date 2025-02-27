@@ -3,7 +3,7 @@
 
 -Call me Parody!!11!1 Very close friends may call me Maissoun
 
--he/him (disc/pt/realitydni)
+-he/him (disc/pt)
 
 -she/her(im female but refrain unless I allow)
 
@@ -35,8 +35,6 @@ Interests!1!1!1!
 
 -psychology
 
-~Teach me chemistry and biology, im failing 💔
-
 
 About me!$!$ 
 
@@ -46,9 +44,7 @@ About me!$!$
 
 -Sensitive(no snowflake, just sensitive w feelings if criticism or anything is directed towards me)
 
--All bark no bite
-
--Never judges
+-Safe space/No judging, ever!
 
 -INTP (even if these tests suck)
 
@@ -56,7 +52,10 @@ About me!$!$
 
 -FELLOW PHILOSOPHERS INT INSTANTLY.
 
--Loves writing but very shy abt actually showing my work
+-I love writing and drawing but very shy abt actually showing my work
+
+![image](https://github.com/user-attachments/assets/4647b5ca-91d7-49e0-82e9-6b2d826929bd)
+
 
 -under 12 and over 18 iwec (age is pritave!), can be skittish ![image](https://github.com/user-attachments/assets/9d377c9f-afdf-4f20-a546-a9a57b2871c3)
 
@@ -67,7 +66,7 @@ About me!$!$
 
 -int anyone general
 
--I love ocs!!
+-oc talk int!
 
 
 Fav characters
@@ -117,6 +116,6 @@ graphic deco cr to https://www.tumblr.com/llocket !!!
 chibis by ...
 divider by https://www.tumblr.com/sunearis
 
-frthrmsg: yuarntavengtut
+fthrmsg: yuarntavengtut
 
 
