@@ -55,6 +55,7 @@ About me!$!$
 -I love writing and drawing but very shy abt actually showing my work
 
 ![image](https://github.com/user-attachments/assets/4647b5ca-91d7-49e0-82e9-6b2d826929bd)
+
 -under 12 and over 18 iwec (age is pritave!), can be skittish ![image](https://github.com/user-attachments/assets/9d377c9f-afdf-4f20-a546-a9a57b2871c3)
 
 
