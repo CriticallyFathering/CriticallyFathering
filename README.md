@@ -105,9 +105,6 @@ uninvited vent
 ![image](https://github.com/user-attachments/assets/6293e8a4-cc67-4c2c-8bc2-c0cf1ddea879)
 
 
-The reason for the prns and a lot of other things being so chaotic is bcs I escape reality a lot and wish to forget who I really am(€L1n/<). Please respect this and dont question unless close.
-
-
 still a wip, I am not an aven fan
 
  found on tumblr, everyone be nice to them!1!!11
