@@ -82,6 +82,8 @@ Fav characters
 
 dni:
 
+Zionists get outtt yall gotta be a social experiment /booooo
+
 islamophobes
 
 perverts
