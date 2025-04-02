@@ -38,7 +38,7 @@ Interests!1!1!1!
 
 About me!$!$ 
 
--Doctor in philosophy, med, literature, everything/jk
+-Doctor in philosophy, med, literature, law, everything/jk
 
 -Int w care!1!1! 
 
