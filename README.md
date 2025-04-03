@@ -35,6 +35,8 @@ Interests!1!1!1!
 
 -psychology
 
+![image](https://github.com/user-attachments/assets/c3a357cb-6724-4832-8c94-47bdf9b87718)
+
 
 About me!$!$ 
 
