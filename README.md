@@ -16,6 +16,7 @@ My preks:
 
 -Flexes wife !!!!!
 
+-Davye irl mutual and my fav parasite <333
 
 -Meatloaf my right hand!$!!$!$
 
