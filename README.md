@@ -64,7 +64,7 @@ About me!$!$
 
 -c+h only close friends/family/wif
 
--NSFW dni, NSFL alr
+-NSFW trigger
 
 -int anyone general
 
@@ -117,6 +117,6 @@ graphic deco cr to https://www.tumblr.com/llocket !!!
 chibis by ...
 divider by https://www.tumblr.com/sunearis
 
-fthrmsg: yuarntavengtut
+fthrmsg: yuarntavngtut
 
 
