@@ -8,7 +8,7 @@
 
 ![image](https://github.com/user-attachments/assets/967628c7-bbe5-48f6-b7c8-ce2a517e62bf)
 
-![image](https://cdn.discordapp.com/attachments/1057222893827797074/1367203174871732235/Tumblr_l_210530355015312.jpg?ex=6813baae&is=6812692e&hm=c7b4fa9c6e00835e9a1a28fd317b52574521061f264ef47e2d70cccbecbb253a&)
+![image](
 
 # <p align=center> "𝖙𝖍𝖊 𝕸𝖆𝖎𝖘𝖘𝖔𝖚𝖓" </p>
 
