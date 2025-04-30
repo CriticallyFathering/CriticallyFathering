@@ -13,5 +13,6 @@
 <p align=center> "𝕴𝕹𝕿𝕻 • 𝖍𝖊/𝖍𝖎𝖒 • 𝖉𝖗𝖊𝖆𝖒𝖊𝖗 • 𝕳𝖔𝕯" </p>
 
 <div align=center>
-  <img src=""
+  <img src="![image](https://github.com/user-attachments/assets/967628c7-bbe5-48f6-b7c8-ce2a517e62bf)
+"
 </div>
