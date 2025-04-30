@@ -1,2 +1,2 @@
 # CriticallyFatheringg
-Make readme personal
+Make rea
