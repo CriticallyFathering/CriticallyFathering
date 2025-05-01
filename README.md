@@ -4,6 +4,8 @@
 
 # <p align="center">“𝕱𝖗𝖊𝖙 𝖓𝖔𝖙, 𝕴’𝖆𝖒 𝖗𝖎𝖌𝖍𝖙 𝖍𝖊𝖗𝖊.”</p>
 
+"𝖄𝖊𝖙 𝖞𝖔𝖚𝖗 𝖘𝖊𝖓𝖘𝖊 𝖔𝖋 𝖎𝖒𝖕𝖊𝖓𝖉𝖎𝖓𝖌 𝖉𝖔𝖔𝖒 𝖒𝖎𝖌𝖍𝖙 𝖓𝖔𝖙 𝖇𝖊 𝖜𝖗𝖔𝖓𝖌."
+
 ![image](https://github.com/user-attachments/assets/967628c7-bbe5-48f6-b7c8-ce2a517e62bf)
 
 
