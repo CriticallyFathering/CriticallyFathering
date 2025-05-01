@@ -9,7 +9,7 @@
 
 # <p align=center> "𝕻𝖆𝖗𝖔𝖉𝖞, 𝖙𝖍𝖊 𝕸𝖆𝖎𝖘𝖘𝖔𝖚𝖓" </p>
 
-<p align=center> "𝕴𝕹𝕿𝕻 • 𝖍𝖊/𝖍𝖎𝖒 • 𝖉𝖗𝖊𝖆𝖒𝖊𝖗 • 𝕳𝖔𝕯 • 𝖜𝖗𝖎𝖙𝖊𝖗 • 𝖕𝖍𝖎𝖑𝖔𝖘𝖔𝖕𝖍𝖊𝖗" </p>
+<p align=center> "𝕴𝕹𝕿𝕻-𝕬 • 𝖍𝖊/𝖍𝖎𝖒 • 𝖉𝖗𝖊𝖆𝖒𝖊𝖗 • 𝕳𝖔𝕯 • 𝖜𝖗𝖎𝖙𝖊𝖗 • 𝖕𝖍𝖎𝖑𝖔𝖘𝖔𝖕𝖍𝖊𝖗" </p>
 
 ![image](https://github.com/user-attachments/assets/2fa332d3-03b8-4449-8482-5e9d129bda15)
 
