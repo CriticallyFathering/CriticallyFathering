@@ -29,6 +29,8 @@
 
 𝕴𝖂𝕮: 𝖚𝖓𝖊𝖆𝖘𝖞 𝖍𝖎𝖘𝖙𝖔𝖗𝖞(𝖚𝖓𝖑𝖊𝖘𝖘 𝖕𝖊𝖆𝖈𝖊) • 𝖚𝖓𝖉𝖊𝖗 12 • 𝖔𝖛𝖊𝖗 18
 
+“𝕵𝖔𝖎𝖓 𝖔𝖚𝖗 𝖋𝖆𝖒𝖎𝖑𝖞, 𝖜𝖔𝖚𝖑𝖉 𝖞𝖔𝖚?”
+
 <div align=center>
   <img src="https://github.com/user-attachments/assets/0d812eca-c10a-4a01-87e2-3cc3b8020a76"
 </div>
