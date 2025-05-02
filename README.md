@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=ff69b4)
 <div align=center>
   <img src="https://github.com/user-attachments/assets/dcf4cfb7-c263-4f56-b311-6bb469b65597"
 </div>
