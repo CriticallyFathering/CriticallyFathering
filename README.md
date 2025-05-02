@@ -1,7 +1,8 @@
-![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=d97c91)
 <div align=center>
   <img src="https://github.com/user-attachments/assets/dcf4cfb7-c263-4f56-b311-6bb469b65597"
 </div>
+
+![](https://komarev.com/ghpvc/?username=CriticallyFathering&color=d97c91)
 
 # <p align="center">“𝕱𝖗𝖊𝖙 𝖓𝖔𝖙, 𝕴’𝖆𝖒 𝖗𝖎𝖌𝖍𝖙 𝖍𝖊𝖗𝖊.”</p>
 
