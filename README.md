@@ -33,6 +33,10 @@
 
 # <p align=center> “𝕵𝖔𝖎𝖓 𝖔𝖚𝖗 𝖋𝖆𝖒𝖎𝖑𝖞, 𝖜𝖔𝖚𝖑𝖉 𝖞𝖔𝖚?” </p>
 
+<img width="550" alt="image" src="https://github.com/user-attachments/assets/f6524358-ef47-4262-9b1b-a1c706a92d60" />
+
+
+
 <div align=center>
   <img src="https://github.com/user-attachments/assets/0d812eca-c10a-4a01-87e2-3cc3b8020a76"
 </div>
